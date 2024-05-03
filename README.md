@@ -6,7 +6,7 @@ Como toda forma de vivir, se tiene que dejar algo para obtener algo con ello, te
 Se tiene que dejar de lado el no puedo, no sirvo para esto, etc; es importante conocer que cuando nos negamos la posibilidad de intentar, estamos limitando nuestra capacidad, generandonos una barrera mental, donde nos vemos obstaculizados por nostros, lo ideal es entender que como toda persona, nos equivocamos, fallamos, nos enojamos, nos enojamos, entre otros, todas las emociones negativas y pensamientos, como tal nos limitan.
 ## Growth Mindset en nuestro entorno👪
 Tener una vida donde el aprendizaje es lo importante, conlleva a que tengamos que aprender a convivir con nuestro entorno, como se menciono, las personas somos complejas, por ello todo lo que sentimos tanto positivo como negativo, tambien es generado por nuestro entorno, comprender ello, nos permite ser empaticos y estar abierto a la critica, que es una gran retroalimentacion sobre todo en nuestro aprendizaje
-[!Note]
+### Importante 🛑
 **El siguiente parrafo es una opinion personal, tomarlo en cuenta.**
 ### Conclusion 🗒️
 El Growth Mindset es una forma de pensar muy peculiar, porque permite usar todas experiencias malas y buenas, como aprendizajes malos y buenos, de forma que construye un conocimiento importante, se tiene que entender que no es facil, es cambiar una forma de pensar, donde la perseverancia como el esfuerzo es lo mas importante, <sup>**_Tanto si piensas que puedes, como si piensas que no puedes, estás en lo cierto (Henry Ford)_</sup>**.
