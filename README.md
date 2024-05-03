@@ -1,4 +1,4 @@
-# El Grown Mindset #RRGGBB
+# El Grown Mindset #0969DA
 Se da entender como la capacidad que tenemos para aprender a aprender,sobre todo de nuestras experiencias y con lo que nos rodea e interactuamo, la mentalidad positiva, comprendiendo que se puede sacar lo bueno de lo malo y usarlo para aprender, un camino donde el aprendizaje es algo primordial, donde el amor se da por el aprendizaje nos genera un **_paradigma_** muy interesante.
 ## La ruta hacia el Growth Mindset
 Como toda forma de vivir, se tiene que dejar algo para obtener algo con ello, tenemos que dejar algo que se dio mucho por parte de una generacion pasada o anterior, con ello, podemos mencionarlo como mentalidad fija que es el problema, si se quiere tener el Growth, se tiene que dejar esta mentalidad fija y cambiar, siendo lo mejor para todas nuestras metas y proyectos.
