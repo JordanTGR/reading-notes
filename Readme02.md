@@ -5,3 +5,9 @@ Se pueden tomar algunas mas importantes siendo estas, indispensables, ya que per
   - Resaltado de sintaxis
   - Variedad de temas
   - Muchas extensiones
+## ¿Qué hacen los siguientes comandos?
+1. pwd
+2. ls
+3. cd
+4. mkdir
+5. touch
